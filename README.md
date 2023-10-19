@@ -1,0 +1,1 @@
+# WordWise-Privacy-policy
